@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-I'm a Computer Science Student
+Currently a Computer Science Student
 
