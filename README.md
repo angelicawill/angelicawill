@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Angelica! 👋
 
-Currently a Computer Science Student
+I'm a Computer Science Student at The Chinese University of Hong Kong. Learning and developing everyday 🌱
 
