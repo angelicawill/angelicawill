@@ -2,5 +2,5 @@
 
 Building Web3 products that earn their place in people's lives, always with the big picture in mind.  
 
-See the work: holdex.io/portfolio
+See the work: https://holdex.io/portfolio
 
