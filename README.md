@@ -1,4 +1,6 @@
-### Hi there, I'm Angelica! 👋
+**Software Design & Code** @ [Holdex](https://holdex.io)  
 
-Product designer and developer 🌱
+Building Web3 products that earn their place in people's lives, always with the big picture in mind.  
+
+
 
